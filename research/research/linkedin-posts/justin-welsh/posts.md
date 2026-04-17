@@ -3,6 +3,7 @@
 **Date:** 10th April 2025  
 **Likes:** ~3100    
 **Comments:** ~950 
+
 **Post URL: https://www.linkedin.com/posts/justinwelsh_whats-the-point-of-making-money-doing-something-activity-7448336076487753728-9kNS?utm_source=share&utm_medium=member_desktop&rcm=ACoAAEL6NxkBB4npGCstcSOCaKRI5CDNKs1Jy2A
 
 
@@ -103,3 +104,42 @@ Start here: https://buff.ly/fpKsukt
 image credit: tiffinikilgore
 Activate to view larger image,
 No alternative text description for this image
+
+## Post 3 -Lots of people mean well when they give you career advice.
+
+**Date:** 12th April 2025  
+**Likes:** ~2600    
+**Comments:** ~700  
+**Post URL:**https://www.linkedin.com/posts/justinwelsh_lots-of-people-mean-well-when-they-give-you-activity-7449060848205185024-S2_U?utm_source=share&utm_medium=member_desktop&rcm=ACoAAEL6NxkBB4npGCstcSOCaKRI5CDNKs1Jy2A
+
+Lots of people mean well when they give you career advice.
+
+But, often, they're just projecting their own insecurities.
+
+It's important to remember that.
+
+That doesn't mean you shouldn't listen to what people have to say.
+
+It just means that you should be wary of the source or motivation.
+
+A colleague of mine once told me that I would be a fool to quit my job and do my own thing.
+
+And maybe, 90 out of 100 times, he would have been right.
+
+Maybe. But he wasn't this time.
+
+And I found out he'd given similar advice to many colleagues who wanted to try their own thing.
+
+Perhaps he had always wanted to do his own thing, but lacked the courage?
+
+And keeping other people from trying made his own choice seem better in his mind?
+
+Whatever the reason, I'm glad I didn't listen.
+
+Maybe you shouldn't either.
+
+If you're interested in learning more about how people like you make the leap, join my newsletter.
+
+You'll get one essay each Saturday to help you rethink how you work, earn, and live. 
+
+Join 180K+ here: https://buff.ly/rq3gVo9
